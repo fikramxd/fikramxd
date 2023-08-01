@@ -1,12 +1,6 @@
-Lu Tau KONTOL Gk...
+𝐖 𝐄 𝐋 𝐂 𝐎 𝐌 𝐄 -- 𝐓𝐎 -- 𝐌 𝐘  𝐆 𝐈 𝐓 𝐇 𝐔 𝐁
 
-- 👋 Hi, I’m @fikramxd
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+Lu Tau KONTOL Gk...🤭🤭🤭
 
-<!---
-fikramxd/fikramxd is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+my name : ꧁༺fikramxd༻꧂
+
